@@ -1,4 +1,4 @@
-1+ (863) 510-1200 - 👋 Hi, I’m @amynicloehinkley
+14073195297- 👋 Hi, I’m @amynicloehinkley
 - 👀 I’m interested in ...Community Development 501c3 Organization 
 - 🌱 I’m currently learning ...Microenterprise Entrepreneurship 
 - 💞️ I’m looking to collaborate on ... Procurment and Authentication Compliance
